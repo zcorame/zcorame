@@ -1,3 +1,5 @@
 ## Hi there 👋
 
-Today I just downloaded Git and VSCode and started learning them. I'm having some difficulties as this is a new experience for me, but I'm enjoying the process and trying to understand the software.
+I'm Zefanya Ratna Palupi Rut Carianto, but you can call me Zefa. I'm from Grobogan, Central Java.
+
+I'm a Geophysics student at Gadjah Mada University with a keen interest in studying Earth's natural phenomena and editing. I'm an organized individual with good analytical skills who loves to learn new things! 👽
