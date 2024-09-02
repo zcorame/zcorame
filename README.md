@@ -1,4 +1,4 @@
-## Welcome! 🐱
+## Welcome! 🦄
 
 Hi! I'm Zefanya Ratna Palupi Rut Carianto, but you can call me Zefa. I'm from Grobogan, Central Java.
 
